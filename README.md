@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=chauhan-prince&label=Profile%20views&color=0e75b6&style=flat" alt="chauhan-prince" /> </p>
 
-- 📫 How to reach me **CHAUHANPRINCE9761@GMAIL.COM**
+- 📫 How to reach me **chauhanprince9761@gmail.com**
 
 - ⚡ Fun fact **I am funny😊**
 
